@@ -1,4 +1,4 @@
-
+Get the ultimate Speedify addon with high-speed Speedify Addon | server-locations + end-to-end-encryption. Featuring server-locations and end-to-end-encryption, it's the best
 
 
 
